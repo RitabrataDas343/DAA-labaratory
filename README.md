@@ -14,5 +14,3 @@ Things I like about Sharmistha -
 10. Counsels me 
 11. Excited about dates and night duty but never say so.
 12. Follows me if I don't give her attention. 
-
-Kya karu mein 
